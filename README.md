@@ -7,5 +7,5 @@
 - 💬 Ask me about Data structures and Computer algorithms
 - 📫 How to reach me: Telegram: @azmt_m Instagram: @azmt_m
 - 😄 Pronouns: he/his/hey bro...
-- ⚡ Desires: I'm super eager to learn Data analysis & machine learning
+- ⚡ Fun Fact: I think I'd love to travel all over the globe
 
